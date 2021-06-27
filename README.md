@@ -1,1 +1,2 @@
 Christian Herinckx
+herincch@oregonstate.edu
